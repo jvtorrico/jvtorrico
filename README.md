@@ -33,7 +33,7 @@ sou João Vítor, conhecido como Torrico, tenho 17 anos  e sou estudante do CTIS
 
 
 
-![](https://thumbs.gfycat.com/JauntyHardtofindAss-mobile.mp4)
+![](https://thumbs.gfycat.com/AngryFineHornedviper-size_restricted.gif)
 
 
 
